@@ -1,2 +1,0 @@
-# VAJRA
-Sports Fest
